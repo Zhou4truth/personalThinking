@@ -1,2 +1,2 @@
 ### Accept,and understand
-### Follow my heart, and interact with rationality.
+### Follow my heart, and interact rationally.
